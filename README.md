@@ -1,1 +1,1 @@
-This is my read me file..... Hello wtf... surviving is winning, josuha. 
+This is my read me file..... surviving is winning, josuha. 
